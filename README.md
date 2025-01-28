@@ -1,1 +1,1 @@
-# mito kanal berita akurat dan terpercaya
+# indonesiatoday kanal berita akurat dan terpercaya
