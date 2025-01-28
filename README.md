@@ -1,1 +1,1 @@
-# mito
+# mito kanal berita akurat dan terpercaya
